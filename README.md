@@ -1,1 +1,1 @@
-# HistoryDex-Privacy-Policy
+# WW2dex-Privacy-Policy
